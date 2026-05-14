@@ -1,4 +1,4 @@
-#  
+#  Experience blue lock rivals like never before with automatic blue lock rivals Script, the #1 Script. Includes speed and anti-ban for unbeatable
 
 
 
